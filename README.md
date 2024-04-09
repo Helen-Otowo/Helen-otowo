@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Helen-Otowo
 - 👀 I’m interested in Tech
-- 🌱 I’m currently learning Product design
 - 💞️ I’m looking to collaborate with other product designers 
 - 📫 How to reach me via Linked In.
 
